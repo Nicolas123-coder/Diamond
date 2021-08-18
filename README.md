@@ -1,1 +1,1 @@
-# Diamond-
+# Diamond Inc. 
